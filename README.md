@@ -1,1 +1,12 @@
-# merchshopbutnotreally
+# TETSUCABRA FOR MAYOR 2022
+## SORRY, WE'RE SOLD OUT
+
+
+
+
+
+
+
+
+
+  
